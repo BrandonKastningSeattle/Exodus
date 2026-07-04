@@ -5,3 +5,7 @@
 “And the children of Israel went into the midst of the sea upon the dry ground: and the waters were a wall unto them on their right hand, and on their left.” - Exodus 14:22 (KJV)
 
 “Verily I say unto you, Whosoever shall not receive the kingdom of God as a little child shall in no wise enter therein.” - Luke 18:17 (KJV)
+
+"Revenge is Best Served Cold" - My Father to My Mother before Criminally Seizing her Property from Tort Liability Settlement and Threatening to Burn us Alive if she tried to defend what was rightfully Hers.
+
+“God is jealous, and the LORD revengeth; the LORD revengeth, and is furious; the LORD will take vengeance on his adversaries, and he reserveth wrath for his enemies.” - Nahum 1:2 (KJV)
